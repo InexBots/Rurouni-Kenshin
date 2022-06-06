@@ -1,0 +1,2 @@
+# Rurouni-Kenshin
+Rurouni Kenshin: The Final (2021)  Masa lalu Kenshin menyusulnya menyebabkan kehancuran Restoran Akabeko, yang merupakan tempat makan favorit Kenshin. Di sana, dia menemukan catatan dengan kata "Junchu" di atasnya.  Sutradara: Keishi tomo Tanggal rilis: 23 April 2021 (Jepang) Durasi: 139 menit Negara: Jepang Bahasa: Jepang Subtitle: Indonesia  #Action #Adventure #Drama  Poster film : : ➭ @listmovieme
